@@ -13,5 +13,6 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: H31l0From4ndr0id3mulator
+- Not fun fact: Хочу много денег! 3500 за штуку
 
 -->
